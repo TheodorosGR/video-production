@@ -1,3 +1,3 @@
 # Headline
 
-> An awesome project.
+> Το παίρνεις και γέρνεις. Μύδι.
